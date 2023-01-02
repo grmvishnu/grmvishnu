@@ -4,7 +4,7 @@ This is my personal GitHub profile where I upload all my projects and academic a
 
 I am looking for Co-op opportunities which start in Jan 2023 and full time opportunities which start in May 2023. If you have any leads to help me on this, I would be very grateful.
 
-I can be contacted via phone on (902)-412-8921 or via email by "grmvishnu123@gmail.com".
+I can be contacted via email by "grmvishnu123@gmail.com".
 
 Have a good day! :)
 
